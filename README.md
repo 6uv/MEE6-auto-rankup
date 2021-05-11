@@ -1,2 +1,3 @@
 # MEE6-auto-rankup
-Made by @con. Download zip to run
+Made by @con.
+**CLICK CODE THEN DOWNLOAD ZIP. MAKE SURE YOU HAVE WINRAR OR 7ZIP**
